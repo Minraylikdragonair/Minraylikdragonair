@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Minraylikdragonair
 - 👀 I’m interested in drawing 
 - 🌱 I’m currently learning guitar
-- 💞️ I’m looking to collaborate on hack scrpits
+- 💞️ I’m looking to collaborate on um i dunno anything
 - 📫 How to reach me Discord-o.he.o
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I dont like maths>
